@@ -1,0 +1,1 @@
+# jogoparelelo1
